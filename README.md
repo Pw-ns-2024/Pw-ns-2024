@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Pw-ns-2024
 - 👀 I’m interested in ... creating meaningful solutions with technology.
 - 🌱 I’m currently learning ... a lot of things.
-- 💞️ I’m looking to collaborate on ... mainly the team I am part of at Promptworld.in
+- 💞️ I’m looking to collaborate on ... mainly the team I am part of at TBD
 - 📫 How to reach me ... TBD
 - 😄 Pronouns: ... ..
 - ⚡ Fun fact: ... many, and I believe in telling about them upon knowing you better.
